@@ -1,0 +1,1 @@
+# tugas_uts_sayudiaripalmaturidi_5920124010
